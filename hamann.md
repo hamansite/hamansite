@@ -1,5 +1,5 @@
 <center> <h3> <b> 
-🔴 برای خرید فیلترشکن و ورود به سایت روی لینک زیر کلیک کنید 🚀
+🔴 برای خرید فیلترشکن و ورود به سایت روی لینک زیر کلیک کنید 🚀بدون قطعی 
   <br>  <br>
 <a href="https://hamanvip4.online/">hamanvip4.online</a>
 
@@ -7,7 +7,7 @@
   <br>  <br> 
   🔵 یا به آی دی تلگرام زیر پیام دهید
   <br> <br> 
-<a href="https://t.me/haman_site">vipvpn_sale2</a>
+<a href="https://t.me/haman_site">haman_site</a>
 
   <br> <br> <br> <br> 
 
