@@ -8,7 +8,7 @@
    یا به آی دی تلگرام زیر پیام دهید
   <br> <br> 
 <a href="https://t.me/haman_site">haman_site</a>
-<p><span><img src="[https://github.com/januda-ui/januda-ui/blob/main/icons/dragon_ss_6.png](https://02589.site/wp-content/uploads/2023/10/baner-hamaaan.png)" alt=""/></span></p>
+<p><span><img src="[[https://github.com/januda-ui/januda-ui/blob/main/icons/dragon_ss_6.png](https://02589.site/wp-content/uploads/2023/10/baner-hamaaan.png)]" alt=""/></span></p>
 
   <br> <br> <br> <br> 
 
