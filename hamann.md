@@ -1,13 +1,9 @@
 <center> <h3> <b> 
+<p><span><img src="https://02589.site/wp-content/uploads/2023/10/baner-hamaaan.png" alt=""/></span></p>
 🔴 برای خرید فیلترشکن و ورود به سایت روی لینک زیر کلیک کنید 🚀بدون قطعی 
   <br>  <br>
-<a href="https://hamanvip4.shop/">hamanvip4.shop</a>
+<a href="https://hamanvip4.shop/">ورودبه سایت اصلی برای خرید</a>
 
-
-  <br>  <br> 
-   یا به آی دی تلگرام زیر پیام دهید
-  <br> <br> 
-<a href="https://t.me/haman_site">haman_site</a>
 <p><span><img src="https://02589.site/wp-content/uploads/2023/10/baner-hamaaan.png" alt=""/></span></p>
 
   <br> <br> <br> <br> 
