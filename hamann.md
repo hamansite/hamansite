@@ -3,6 +3,9 @@
   <br>  <br>
 <a href="https://hamanvip6.online">برای ورود به سایت اصلی کلیک کنید</a>
 
+
+یا در چت آنلاین سایت پیام دهید 
+<a href="goftino.com/c/qP8RTe">برای ورود به چت آنلاین سایت پیام دهید</a>
 <p><span>
 
   <br> <br> <br> <p><span><img src="https://02589.site/wp-content/uploads/2023/10/baner-hamaaan.png" alt=""/></span></p><br> 
