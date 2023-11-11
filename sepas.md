@@ -1,11 +1,15 @@
 <center> <h3> <b> 
 🔴 برای خرید فیلترشکن و ورود به سایت روی لینک زیر کلیک کنید 🚀بدون قطعی 
   <br>  <br>
-<a href="">برای ورود به سایت اصلی کلیک کنید</a>
+<a href="haman1.site">برای خرید اشتراک کلیک کنید د</a>
 
 
 یا در چت آنلاین سایت پیام دهید   <br>  <br>
-<a href="goftino.com/c/qP8RTe">برای ورود به چت آنلاین سایت پیام دهید</a>
+<a href="goftino.com/c/qP8RTe">برای ورود به چت آنلاین سایت کلیک کنید </a>
+<p><span>
+
+یا در تلگرام پیام پیام دهید   <br>  <br>
+<a href="http://t.me/haman_site">برای ورود به تلگرام  پیام کنید</a>
 <p><span>
 
   <br> <br> <br> <p><span><img src="https://02589.site/wp-content/uploads/2023/10/baner-hamaaan.png" alt=""/></span></p><br> 
