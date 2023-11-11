@@ -5,7 +5,7 @@
 
 
 یا در چت آنلاین سایت پیام دهید   <br>  <br>
-<a href="goftino.com/c/qP8RTe">برای ورود به چت آنلاین سایت کلیک کنید </a>
+<a href="https://goftino.com/c/qP8RTe">برای ورود به چت آنلاین سایت کلیک کنید </a>
 <p><span>
 
 
