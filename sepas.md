@@ -1,6 +1,8 @@
 
 <center> <h3> <b> 
 🔴 برای خرید فیلترشکن و ورود به سایت روی لینک زیر کلیک کنید 🚀بدون قطعی 
+  <a href="https://ha1man.online/">ha1man.online </a>
+
   <br>  <br>
 <a href="https://ha1man.online/">برای خرید اشتراک , و تحویل آنی کلیک کنید </a>
 
