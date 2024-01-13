@@ -2,13 +2,13 @@
 <center> <h3> <b> 
 🔴 برای خرید فیلترشکن و ورود به سایت روی لینک زیر کلیک کنید 🚀بدون قطعی 
     <br>  <br>
-  <a href="https://ha1man.online/">ha1man.online </a>
+  <a href="https://hamann1.site/">ha1man.online </a>
   <br>  <br>
-<a href="https://ha1man.online/">برای خرید اشتراک , و تحویل آنی کلیک کنید </a>
+<a href="https://hamann1.site/">برای خرید اشتراک , و تحویل آنی کلیک کنید </a>
 
 
 یا در چت آنلاین سایت پیام دهید   <br>  <br>
-<a href="https://goftino.com/c/qP8RTe">برای ورود به چت آنلاین سایت کلیک کنید </a>
+<a href="https://goftino.com/c/dlqrDS">برای ورود به چت آنلاین سایت کلیک کنید </a>
 <p><span>
 
 
