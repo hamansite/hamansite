@@ -2,7 +2,7 @@
 <center> <h3> <b> 
 🔴 برای خرید فیلترشکن و ورود به سایت روی لینک زیر کلیک کنید 🚀بدون قطعی 
     <br>  <br>
-  <a href="https://hamann1.site/">ha1man.online </a>
+  <a href="https://hamann1.site/">hamann1.site </a>
   <br>  <br>
 <a href="https://hamann1.site/">برای خرید اشتراک , و تحویل آنی کلیک کنید </a>
 
@@ -15,7 +15,7 @@
 یا در تلگرام پیام پیام دهید   <br>  <br>
 <a href="http://t.me/haman_site">برای ورود به تلگرام  پیام کنید</a>
 <p><span>
-  <br> <br> <br> <p><span><img src="https://02589.site/wp-content/uploads/2023/10/baner-hamaaan.png" alt=""/></span></p><br> 
+  <br> <br> <br> <p><span><img src="https://hamann1.site/wp-content/uploads/2023/10/baner-hamaaan.png" alt=""/></span></p><br> 
 
 وی ای پی هامان - چند سرور پر سرعت بدون قطعی  با پشتیبانی زیر ۵ دقیقه در تلگرام 
 <br> 
