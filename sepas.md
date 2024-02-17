@@ -15,7 +15,7 @@
  از این بخش اسکرین شات بگیرید 
 
 یا در تلگرام پیام پیام دهید   <br>  <br>
-<a href="http://t.me/haman_site">برای ورود به تلگرام  پیام کنید</a>
+<a href="http://tlgrm.in/haman_site">برای ورود به تلگرام و خرید از تلگرام  اینجا را کلیک کنید</a>
 <p><span>
   <br> <br> <br> <p><span><img src="https://hamann1.site/wp-content/uploads/2023/10/baner-hamaaan.png" alt=""/></span></p><br> 
 
